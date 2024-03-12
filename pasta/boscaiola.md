@@ -5,7 +5,7 @@
 
 - rigatoni
 - pancetta
-- peas
+- peas, lots!
 - mushrooms
 - onions
 
